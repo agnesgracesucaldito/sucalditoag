@@ -7,7 +7,7 @@ I am a student taking up Bachelor of Science in Informartion Systems at West Vis
 -Sparx
 -Computer programming languages
 
-### :heart: Things that I love to do 
+### :two_hearts: Things that I love to do 
 -Doodling and drawing
 -Listening to music 
 -Watching movies and vlogs
