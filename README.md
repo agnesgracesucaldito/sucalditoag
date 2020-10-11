@@ -15,7 +15,8 @@ I am a student taking up Bachelor of Science in Informartion Systems at West Vis
 - Playing online games
 
 ### You can reach me through
-
+- Facebook: Agnes Grace Sucaldito
+- :email: Gmail: agnesgrace.sucaldito@wvsu.edu.ph
 
 ### Be Positive in Life
 
